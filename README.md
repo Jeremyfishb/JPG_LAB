@@ -1,2 +1,2 @@
 # JPG_LAB
-Super awesome research in JPG lab
+The very best Super awesome research in JPG lab
